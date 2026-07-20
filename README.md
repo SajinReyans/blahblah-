@@ -1,4 +1,5 @@
-this is the dawn of the niggers
+this is the dawn of removes the offencsife language 
+
  # blahblah- hey new stuff
 bruh stuff 
 
